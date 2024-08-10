@@ -1,11 +1,7 @@
-# Welcome to with-your.mom
-This was a Tixte subdomain that expired. To try and prevent scams, I've purchased it.
+# Welcome
+This was a Tixte Subdomain that expired. I've purchased it to prevent scams.
 
-Contact information:
-```
-David-Demeter Finance, Ltd
-demente.d@crustyft.org
-```
-Registered address can be found via who.is/whois/with-your.mom
+Notice to interested buyers: This domain will not be sold to any entity other than Tixte.com.
 
-The domain name with-your.mom has been secured to prevent fraudulent use. and will not be sold, transferred, or made available to any individual, company, or entity other than Tixte (tixte.com). Any inquiries or offers for purchase will not be entertained. Thank you for your understanding.
+## Contact:
+esebastian@linkhosting.uk
